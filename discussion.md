@@ -1,1 +1,1 @@
-"Technology forums are vital for knowledge sharing and collaboration..." 
+"Technlogy forums are crucial for knwoledge sharing..." 
